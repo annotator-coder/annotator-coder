@@ -1,6 +1,6 @@
 ## Wonyeob Jung · 정원엽
 
-**Communications lead who ships his own tools.**
+**Communications lead who ships the tools, not just the message.**
 Eleven years a journalist, then PR and crisis communications at a unicorn startup. Now leading a PR team at GS Caltex — and building the systems that team runs on.
 
 **커뮤니케이션 리드 · 기자 출신 · 직접 만드는 사람**
